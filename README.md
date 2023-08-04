@@ -6,4 +6,4 @@ This class was conducted on its own within MARTE Lab., Dongguk University by Gwa
 
 You can check more information and preview images on my website.
 
-https://www.gwangyulee.com/2022/06/2022-touchdesigner-classgeneral.html
+https://www.gwangyulee.com/2022/09/2022-advanced-touchdesigner-classaudio.html
